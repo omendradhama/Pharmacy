@@ -18,7 +18,7 @@ Eligibility Criteria:
 
 10+2 with Physics, Chemistry and Mathematics or Biology
 
-Minimum age: 14 years as on 1st July 2024 (i.e., born on or before 01‑07‑2010) 
+Minimum age: 18 years as on 1st July 2025 (i.e., born on or before 01‑07‑2007) 
 
 🧾 Accreditation & Approvals
 Approved by the Pharmacy Council of India (PCI) and recognized by the UP government’s  for fee structure regulations 
