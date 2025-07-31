@@ -10,11 +10,9 @@ Type: Private diploma-level pharmacy institute
 Programme Offered: Only Diploma in Pharmacy (D.Pharm) — 2 years full-time course 
 sarvadayacollege.org.in
 
-Seats Available: 60 seats per batch 
-Shiksha
+Seats Available: 60 seats 
 
-Fees: ₹90,000 for the full duration (2 years) as per AFRC guidelines 
-Shiksha
+Fees: ₹90,000 for the full duration (2 years) 
 
 Eligibility Criteria:
 
