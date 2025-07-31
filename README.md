@@ -1,1 +1,1 @@
-# Pharmacy
+#Sarvordaya College of Pharmacy#
